@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @amanmalik03
 -  📚 Im currently studying 
-- 🌱 I’m currently learning Python
 - 📫 How to reach me ... aman.malik1603@gmail.com
 - 🏏🏐🏊‍♂️
 
